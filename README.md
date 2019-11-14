@@ -1,3 +1,0 @@
-# computer-xin  
-#xinxisuyang  
-##zuoye
